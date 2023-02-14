@@ -1,0 +1,3 @@
+# immad
+
+I'm just a guy want to be rich...
